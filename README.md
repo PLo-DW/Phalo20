@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PLo-DW
 - 👀 I’m interested in Developing IT skills
-- 🌱 I’m currently studying for the Comptia A+ 
+- 🌱 
 - 💞️ I’m looking to collaborate on unsure
 - 📫 How to reach me 
 - 😄 Pronouns: Lord
